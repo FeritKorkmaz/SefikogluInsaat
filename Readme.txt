@@ -1,1 +1,1 @@
-#Sefikoglu Insaat
+Sefikoglu Insaat
